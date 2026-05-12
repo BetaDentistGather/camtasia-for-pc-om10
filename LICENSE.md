@@ -1,4 +1,4 @@
-# 
+# Enhance Camtasia for PC | Camtasia for Windows with Camtasia for PC | Camtasia for Windows professional Effect: audio-sync & time-remapping, the #1 effect. Includes audio-sync and
 
 
 
